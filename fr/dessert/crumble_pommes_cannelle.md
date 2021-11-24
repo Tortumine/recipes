@@ -4,7 +4,7 @@
 
 Pour 6 personnes
 
-* 6 belles pommes
+* 6 pommes
 * environ 150 g de beurre mou
 * 100 g farine
 * 50 g de poudre d’amande
