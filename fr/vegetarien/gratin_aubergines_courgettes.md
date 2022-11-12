@@ -16,6 +16,11 @@
 * gros sel
 * sel, poivre
 
+## Temps
+
+* 20 minutes de préparation
+* 30 minutes au four
+
 ## Preparation
 
 1. Préchauffez le four à th.6 (180ºC). Coupez les aubergines en rondelles, saupoudrez-les de gros sel, laissez-les dégorger 1 heure, puis rincez-les et essuyez-les.
@@ -23,6 +28,3 @@
 1. Coupez les courgettes en rondelles et saupoudrez-les de farine, ainsi que les aubergines. Ensuite faites revenir séparément dans 3 c. à soupe d'huile.
 1. Huilez un plat à gratin et rangez-y les rondelles de courgettes et d'aubergines. Parsemez du reste de basilic et de persil. Nappez avec la sauce à la tomate, répartissez des rondelles de mozzarella et saupoudrez de gruyère râpé.
 1. Enfournez pendant 30 min. et servez aussitôt.
-
-## Astuces
-Pour cette recette de Gratin d'aubergines et de courgettes, vous pouvez compter 20 minutes de préparation.
